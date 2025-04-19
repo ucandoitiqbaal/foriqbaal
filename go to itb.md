@@ -1,0 +1,4 @@
+# foriqbaal
+hallo, ini project pertama akuu!
+semoga kamu sukaaa!
+eh aku bikin untuk nyemangatin kamu utbk tauuu. dan mau ingetin hal yang perlu kamu bawa saat utbk : kartu peserta utbk, identitas diri (ktp/kartu pelajar), oiya untuk identitas diri itu fotocopy yaa. jangan lupa bawa fc skl (karna sekolah kita belum bisa keluar tuh skl, jadi bawa aja surat aktif kelas 12) itu pengganti skl kata bu liaa, jangan lupa bawa minum dari rumah (boleh kan ya masukin minum ke ruangan?) kalo gaboleh, yauda gaperlu dibawa, bawa masker (kalo perlu) bawa pensil sama penghapus (kalo boleh) dan yang paling penting HARUS TETAP SEMANGATTT! kalo ngerjain gausa buru-buru. iyaa tauu kamu pasti panik dengan waktu yang singkat, but kalo panik ntar jawabannya acak-acakan. okeyy udaa gituu ajaa, oiya, kalo pulang ke pasuruan, hati-hati yaa
